@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dr0ps13
-- 👀 I’m interested in hiking, art, and philosophy just to make a few.
+.- 👀 I’m interested in 🥾, 🎨, and philosophy just to 📛 a few
 - 🌱 I’m currently earning my Bachelor's in Graphic Arts and 3d Modeling.
 - 💞️ I’m looking to collaborate on learning how to navigate my learning progress so that i am not spinning my wheels.
 - 📫 How to reach me but 📨 dr0ps13@hotmail.com
